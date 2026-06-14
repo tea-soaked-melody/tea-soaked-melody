@@ -1,6 +1,6 @@
 ![images (33)](https://github.com/user-attachments/assets/a537222d-e43e-4052-9cc0-9e461c8c84d9)
 
-# :D Hello!! My names areee: William, Crimson, and Berni ! He/They/It are usually my pronouns, but sometimes she works too! <3
+# :D Hello!! I am Crimson/Berni ! She/They/It are my usual pronouns, He/him works sometimes too, but please ask!
 
 I have Tourette syndrome, severe depression and anxiety, OCD, and slight anger issues. I think I'm pretty cool though so *PLEASE* for the love of everything interact with me!! I love meeting new people! I unfortunately can get a little out of hand with rants, obsessions, fandoms, etc. sometimes, but if you don't like that then get out. 🤷
 
@@ -18,9 +18,9 @@ HOMOPHOBES. (I don't care if you're straight or gay, but if you hate on *either*
 
 RELIGIOCENTRISTS. (I don't give two shits what religion you're in, believe what you want. But when you start thinking that religion is superior, heh.....***shut up***.)
 
-13 OR YOUNGER. (I don't feel I have to explain myself.)
+10 OR YOUNGER. (I don't feel I have to explain myself.)
 
-19 OR OLDER. (Same as the above.)
+21 OR OLDER. (Same as the above.)
 
 SEXISTS. (I mean jokes are *fine* but only if everyone is ***comfortable*** with the jokes, man.)
 
