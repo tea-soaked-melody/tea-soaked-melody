@@ -1,6 +1,6 @@
 ![images (33)](https://github.com/user-attachments/assets/a537222d-e43e-4052-9cc0-9e461c8c84d9)
 
-# :D Hello!! I am Crimson/Berni ! She/They/It are my usual pronouns, He/him works sometimes too, but please ask!
+# :D Hello!! I am Crimson/Berni/Jax/Bobette ! She/They/It are my usual pronouns, He/him works sometimes too, but please ask!
 
 I have Tourette syndrome, severe depression and anxiety, OCD, and slight anger issues. I think I'm pretty cool though so *PLEASE* for the love of everything interact with me!! I love meeting new people! I unfortunately can get a little out of hand with rants, obsessions, fandoms, etc. sometimes, but if you don't like that then get out. 🤷
 
